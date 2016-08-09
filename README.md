@@ -1,4 +1,4 @@
-# Spiritualnost
+# Spirituality
 
 Hi everybody! My name is Dr. Nick!
 
